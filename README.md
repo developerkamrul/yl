@@ -1,2 +1,2 @@
-# yl
-https://studio.youtube.com/channel/UCfNe61Us9VPx_6zmBzW1Rig
+# youtube link
+https://www.youtube.com/channel/UCfNe61Us9VPx_6zmBzW1Rig
